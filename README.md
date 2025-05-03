@@ -8,4 +8,4 @@ Resolução de problemas: Enfrento desafios complexos com uma abordagem analíti
 Trabalho em equipe: Tenho boa comunicação e didática, e acredito que compartilhar conhecimento é essencial para o crescimento.
 
 ### **🌱 Atualmente aprendendo:**
-Aprofundando meus conhecimentos em engenharia e ciência de dados.
+Focado na faculdade e em um projeto de pesquisa, estudo Java nas horas vagas.
